@@ -1,3 +1,3 @@
-## Hi there 👋
-yo im studying IT
+## Hi there 👋 im David
+im studying IT
 
